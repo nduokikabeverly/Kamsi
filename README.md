@@ -1,0 +1,1 @@
+This website is about a student who is intrested in ai/tech, and takes lessons for it in a school called ENZY ROYAL SCHOOL,and given an asssignment to make a portfolio account using her personal details
